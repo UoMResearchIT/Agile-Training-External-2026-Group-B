@@ -8,13 +8,21 @@
 
 ### Ingredients
 2 tbsp olive oil
+
 400g/14oz beef mince
+
 1 onion, diced
+
 2 garlic cloves, chopped
+
 100g/3½oz carrot, grated
+
 2 x 400g tins chopped tomatoes
+
 400ml/14fl oz stock (made from stock cube. Ideally beef, but any will do)
+
 400g/14oz dried spaghetti
+
 salt and pepper
 
 ### Method
