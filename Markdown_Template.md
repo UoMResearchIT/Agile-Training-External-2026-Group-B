@@ -1,11 +1,11 @@
-#Recipe Title
+# Recipe Title
 
-##Cuisine
+## Cuisine
 
-###Times
+### Times
 
-###Ingredients
+### Ingredients
 
-###Method
+### Method
 
-###Other Notes
+### Other Notes
