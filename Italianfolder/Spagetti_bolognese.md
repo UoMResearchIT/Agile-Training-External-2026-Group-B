@@ -4,6 +4,8 @@
 
 ### Times
 
+30 mins to 1 hour
+
 ### Ingredients
 2 tbsp olive oil
 400g/14oz beef mince
@@ -25,3 +27,7 @@ salt and pepper
 4. When ready to cook the spaghetti, heat a large saucepan of water and add a pinch of salt. Cook according to the packet instructions. Once the spaghetti is cooked through, drain and add to the pan with the bolognese sauce. Mix well and serve.
 
 ### Other Notes
+
+Each serving provides 787 kcal, 35g protein, 103g carbohydrates (of which 19g sugars), 24g fat (of which 8g saturates), 8.5g fibre and 1.5g salt.
+
+This bolognese sauce can be cooked in advance and frozen. Leave to cool completely then pop in a freezer-proof container, it will keep in the freezer for up to 3 months.
