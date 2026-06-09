@@ -1,6 +1,4 @@
-#Markdown template
-
-##Recipe Title
+#Recipe Title
 
 ##Cuisine
 
